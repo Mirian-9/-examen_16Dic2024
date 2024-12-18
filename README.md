@@ -21,4 +21,4 @@
    https://docs.google.com/document/d/1QOmVvhvAONVRvihJUJ6RTezrjzLb9MTmDO3IO4vj474/edit?usp=sharing)]
    
    ### Se adjunta información sobre Sueldos Promedios Anuales de Preceptores en Argentina.
-   [[Tablas de Sueldos Promedios Preceptores en Argentina](MODIFICA - https://docs.google.com/spreadsheets/d/1-zKuKNnT3zlOrZBHpXZwxsV2HgaYxvXxQzRLT8Wh2II/edit?usp=sharing)]
+   [[Tablas de Sueldos Promedios Preceptores en Argentina](MODIFICA -https://1drv.ms/x/s!At2-povF7XBviWoycvTDDvkNzZRQ?e=gCgZfQ )]
